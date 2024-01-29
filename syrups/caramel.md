@@ -1,4 +1,4 @@
-# Caramel Syrup
+# Caramel Syrup Recipe
 
 ## Description: Add the exciting sweetness of caramel syrup to any coffee at home with this delicious recipe
 
